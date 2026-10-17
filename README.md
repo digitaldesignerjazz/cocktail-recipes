@@ -85,6 +85,17 @@ Mit Eis shaken, in ein kurzes Glas abseihen. Garnitur: Kokosraspeln obendrauf.
 
 Mit Eis shaken und abseihen. Garnitur: Zitronenschale.
 
+## German Buck
+
+**Zutaten:**
+
+- Cola
+- Whisky
+- Rum
+- Spritzer Limette
+
+Eis rein, Cola, Whisky und Rum darüber, mit einem Spritzer Limette. In Irland heißt so ein Mix Irish Buck — mit Rum drin wird's zum German Buck.
+
 ## Saisonale Drinks
 
 ### Frühlingsdrinks
