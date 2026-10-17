@@ -161,6 +161,17 @@ Orangensaft und Southern Comfort über Eiswürfel in ein hohes Glas geben und ku
 
 Alles mit Eis mixen, in ein hohes Glas mit Eiswürfeln füllen. Garnitur: Ananasscheibe und Kirsche.
 
+#### Freibeuter
+
+**Zutaten:**
+
+- 4 cl brauner Rum
+- 2 cl Limettensaft
+- 1 Spritzer Grenadine
+- Coca-Cola
+
+Eis rein, mit Coca-Cola auffüllen. Garnitur: Limettenscheibe und ein Strohhalm.
+
 ### Herbstdrinks
 
 #### Old Fashioned
