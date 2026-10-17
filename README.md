@@ -192,6 +192,15 @@ Eis rein, mit Coca-Cola auffüllen. Garnitur: Limettenscheibe und ein Strohhalm.
 
 Alles mit Eis mixen, in ein hohes Glas mit Crushed Ice füllen. Garnitur: Kokosraspeln und ein Strohhalm. Süß, cremig — wie ein Abschied auf der Terrasse. Ursprünglich als Tina's Coco erfunden.
 
+#### Pusteblume-Cocktail
+
+- 3 cl Wodka
+- 2 cl Holunderblütensirup
+- 1 cl Zitronensaft
+- 1 Spritzer Soda
+
+Mit Eis shaken, abseihen und in ein hohes Glas mit Eis füllen. Mit einem Löwenzahnblatt garnieren.
+
 ### Herbstdrinks
 
 #### Old Fashioned
