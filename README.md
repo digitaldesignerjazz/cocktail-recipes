@@ -43,14 +43,9 @@ Alle Zutaten mit Eis shaken und abseihen. Mit einer Limettenscheibe garnieren. D
 
 ## Freibeuter
 
-**Zutaten:**
-
-- 4 cl brauner Rum
-- 2 cl Limettensaft
-- 1 Spritzer Grenadine
-- Coca-Cola
-
-Eis rein, mit Coca-Cola auffüllen. Garnitur: Limettenscheibe und ein Strohhalm.
+> 🏴‍☠️ *Freibeuter kehrt zurück …*
+>
+> Der alte Freibeuter hat hier nur kurz Anker geworfen und ist schon wieder in See gestochen. Das vollständige Rezept findest du unter [Sommerdrinks → Freibeuter](#freibeuter-1).
 
 ## Buccaneer
 
