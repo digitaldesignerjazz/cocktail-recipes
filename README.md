@@ -28,6 +28,19 @@ Alle Zutaten mit Eis shaken und in ein gekühltes Martini-Glas abseihen. Mit ein
 
 Alle Zutaten mit Eis shaken und durch ein feines Sieb in ein kurzes Glas abseihen. Mit einem Kirschholzstäbchen servieren.
 
+## Victor
+
+**Zutaten:**
+
+- 3 cl Wodka
+- 2 cl Bourbon
+- 1 cl Limettensaft
+- 0.5 cl Zuckersirup
+
+**Zubereitung:**
+
+Alle Zutaten mit Eis shaken und abseihen. Mit einer Limettenscheibe garnieren. Der Wodka macht's weicher, der Bourbon gibt ihm Rückgrat.
+
 ## Saisonale Drinks
 
 ### Frühlingsdrinks
