@@ -68,6 +68,14 @@ Alle Zutaten mit Eis shaken und durch ein feines Sieb in ein kurzes Glas abseihe
 - Eis
 - Orangenscheibe
 
+#### Sonne im Glas
+
+- 8 cl Orangensaft
+- 4 cl Southern Comfort
+- Eiswürfel
+
+Orangensaft und Southern Comfort über Eiswürfel in ein hohes Glas geben und kurz umrühren. Eine Garnitur ist nicht nötig, optional passt eine Orangenscheibe.
+
 ### Herbstdrinks
 
 #### Old Fashioned
