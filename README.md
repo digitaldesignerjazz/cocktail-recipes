@@ -201,6 +201,15 @@ Alles mit Eis mixen, in ein hohes Glas mit Crushed Ice füllen. Garnitur: Kokosr
 
 Mit Eis shaken, abseihen und in ein hohes Glas mit Eis füllen. Mit einem Löwenzahnblatt garnieren.
 
+### Edelweiß-Pirat-Cocktail
+
+- 3 cl Wodka
+- 2 cl Altbier
+- 1 cl Holunderblütensirup
+- 0,5 cl Zitronensaft
+
+Mit Eis shaken, abseihen und in einem Bierglas mit einem Stück Altbier-Schaum servieren.
+
 ### Herbstdrinks
 
 #### Old Fashioned
