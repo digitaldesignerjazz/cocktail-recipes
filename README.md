@@ -138,7 +138,7 @@ Mit Eis shaken und abseihen, in ein hohes Glas mit Eis. Granatapfelkerne obendra
 
 #### Mojito
 
-- 4 cl Weißum
+- 4 cl Weißrum
 - 2 cl Limettensaft
 - 2 TL Rohrzucker
 - 8–10 Minzblätter
@@ -180,6 +180,17 @@ Alles mit Eis mixen, in ein hohes Glas mit Eiswürfeln füllen. Garnitur: Ananas
 - Coca-Cola
 
 Eis rein, mit Coca-Cola auffüllen. Garnitur: Limettenscheibe und ein Strohhalm.
+
+#### Pina's Cocktail
+
+**Zutaten:**
+
+- 5 cl weißer Rum
+- 3 cl Kokosnusslikör
+- 5 cl Sahne
+- 0.5 TL brauner Zucker
+
+Alles mit Eis mixen, in ein hohes Glas mit Crushed Ice füllen. Garnitur: Kokosraspeln und ein Strohhalm. Süß, cremig — wie ein Abschied auf der Terrasse. Ursprünglich als Tina's Coco erfunden.
 
 ### Herbstdrinks
 
