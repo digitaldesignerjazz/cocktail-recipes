@@ -109,6 +109,15 @@ Orangensaft und Southern Comfort über Eiswürfel in ein hohes Glas geben und ku
 
 Mit Eis shaken und doppelt abseihen. Mit einer Zitronenscheibe und einer Kirsche garnieren.
 
+#### Major Cocktail B
+
+- 4 cl Bourbon
+- 2 cl Bananenlikör
+- 1 cl Limettensaft
+- 1 Spritzer Grenadine
+
+Mit Eis shaken, in ein kurzes Glas mit Eiswürfeln abseihen. Mit einem halben Bananenschnitz und einer Kirsche garnieren. Süß, leicht, mit Biss.
+
 ### Winterdrinks
 
 #### Glühwein
