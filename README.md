@@ -41,6 +41,17 @@ Alle Zutaten mit Eis shaken und durch ein feines Sieb in ein kurzes Glas abseihe
 
 Alle Zutaten mit Eis shaken und abseihen. Mit einer Limettenscheibe garnieren. Der Wodka macht's weicher, der Bourbon gibt ihm Rückgrat.
 
+## Freibeuter
+
+**Zutaten:**
+
+- 4 cl brauner Rum
+- 2 cl Limettensaft
+- 1 Spritzer Grenadine
+- Coca-Cola
+
+Eis rein, mit Coca-Cola auffüllen. Garnitur: Limettenscheibe und ein Strohhalm.
+
 ## Saisonale Drinks
 
 ### Frühlingsdrinks
@@ -111,7 +122,8 @@ Orangensaft und Southern Comfort über Eiswürfel in ein hohes Glas geben und ku
 - 4 cl Whisky
 - 1 EL Honig
 - Saft einer halben Zitrone
-- Heißes Wasser
+
+Heißes Wasser
 - Zimtstange
 
 #### Whisky Sour
@@ -136,6 +148,7 @@ Mit Eis shaken, in ein kurzes Glas mit Eiswürfeln abseihen. Mit einem halben Ba
 #### Glühwein
 
 - 75 cl Rotwein
+
 - 15 cl Orangensaft
 - 5 cl Rum
 - 50 g Zucker
