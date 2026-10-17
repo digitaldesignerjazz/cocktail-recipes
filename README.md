@@ -63,16 +63,6 @@ Eis rein, mit Coca-Cola auffüllen. Garnitur: Limettenscheibe und ein Strohhalm.
 
 Mit Eis shaken, in ein kurzes Glas abseihen. Garnitur: Kokosraspeln obendrauf.
 
-## Pina Cocktail
-
-**Zutaten:**
-
-- 5 cl weißer Rum
-- 5 cl Kokosnusslikör
-- 10 cl Ananassaft
-
-Alles mit Eis mixen, in ein hohes Glas mit Eiswürfeln füllen. Garnitur: Ananasscheibe und Kirsche.
-
 ## Saisonale Drinks
 
 ### Frühlingsdrinks
@@ -106,7 +96,7 @@ Orangensaft und Southern Comfort über Eiswürfel in ein hohes Glas geben und ku
 
 #### Mojito
 
-- 4 cl Weiß­­rum
+- 4 cl Weißrum
 - 2 cl Limettensaft
 - 2 TL Rohrzucker
 - 8–10 Minzblätter
@@ -127,6 +117,16 @@ Orangensaft und Southern Comfort über Eiswürfel in ein hohes Glas geben und ku
 - 1 Teil Zitronensaft
 
 Über Eis servieren, pur und ohne Shake.
+
+#### Pina Cocktail
+
+**Zutaten:**
+
+- 5 cl weißer Rum
+- 5 cl Kokosnusslikör
+- 10 cl Ananassaft
+
+Alles mit Eis mixen, in ein hohes Glas mit Eiswürfeln füllen. Garnitur: Ananasscheibe und Kirsche.
 
 ### Herbstdrinks
 
