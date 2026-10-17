@@ -28,6 +28,84 @@ Alle Zutaten mit Eis shaken und in ein gekühltes Martini-Glas abseihen. Mit ein
 
 Alle Zutaten mit Eis shaken und durch ein feines Sieb in ein kurzes Glas abseihen. Mit einem Kirschholzstäbchen servieren.
 
+## Saisonale Drinks
+
+### Frühlingsdrinks
+
+#### Hugo
+
+- 4 cl Prosecco
+- 2 cl Holunderblütensirup
+- 1 cl Minzblätter
+- Sprudelwasser
+- Eis
+- Minzzweig zur Garnitur
+
+#### Pimm's Cup
+
+- 5 cl Pimm's No. 1
+- 10 cl Ginger Ale
+- Gurken- und Orangenscheiben
+- Eis
+- Minze
+
+### Sommerdrinks
+
+#### Mojito
+
+- 4 cl Weißrum
+- 2 cl Limettensaft
+- 2 TL Rohrzucker
+- 8–10 Minzblätter
+- Soda
+- Eis
+
+#### Aperol Spritz
+
+- 6 cl Prosecco
+- 4 cl Aperol
+- Ein Spritzer Soda
+- Eis
+- Orangenscheibe
+
+### Herbstdrinks
+
+#### Old Fashioned
+
+- 5 cl Bourbon
+- 1 Würfel Zucker
+- 2–3 Spritzer Angostura
+- Orangenschale
+- Eis
+
+#### Hot Toddy
+
+- 4 cl Whisky
+- 1 EL Honig
+- Saft einer halben Zitrone
+- Heißes Wasser
+- Zimtstange
+
+### Winterdrinks
+
+#### Glühwein
+
+- 75 cl Rotwein
+- 15 cl Orangensaft
+- 5 cl Rum
+- 50 g Zucker
+- Zimt, Nelken, Sternanis
+- Orangenscheiben
+
+Alles zusammen erwärmen, aber nicht kochen lassen.
+
+#### Irish Coffee
+
+- 4 cl Irish Whiskey
+- 1 EL brauner Zucker
+- Heißer schwarzer Kaffee
+- 4 cl Sahne obendrauf
+
 ---
 
-Weitere Rezepte folgen.
+Weitere saisonale Rezepte folgen bald.
