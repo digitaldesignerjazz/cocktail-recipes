@@ -76,7 +76,7 @@ Orangensaft und Southern Comfort über Eiswürfel in ein hohes Glas geben und ku
 - Eis
 - Orangenscheibe
 
-#### Amaretto Lemon
+#### Emine Cocktail
 
 - 2 Teile Amaretto
 - 1 Teil Zitronensaft
