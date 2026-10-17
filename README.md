@@ -74,6 +74,17 @@ Mit Eis shaken, in ein kurzes Glas abseihen. Garnitur: Kokosraspeln obendrauf.
 
 Über Eis servieren, mit einer Orangenscheibe garnieren.
 
+## Rhodos-Cocktail
+
+**Zutaten:**
+
+- 3 cl Metaxa
+- 2 cl Zitronensaft
+- 1 cl Honigsirup
+- 1 Spritzer Orangenbitter
+
+Mit Eis shaken und abseihen. Garnitur: Zitronenschale.
+
 ## Saisonale Drinks
 
 ### Frühlingsdrinks
