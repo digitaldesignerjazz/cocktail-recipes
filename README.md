@@ -63,6 +63,17 @@ Eis rein, mit Coca-Cola auffüllen. Garnitur: Limettenscheibe und ein Strohhalm.
 
 Mit Eis shaken, in ein kurzes Glas abseihen. Garnitur: Kokosraspeln obendrauf.
 
+## Malta-Cocktail
+
+**Zutaten:**
+
+- 3 cl Wodka
+- 2 cl Blutorangensaft
+- 1 cl Aperol
+- 1 Spritzer Tonic
+
+Über Eis servieren, mit einer Orangenscheibe garnieren.
+
 ## Saisonale Drinks
 
 ### Frühlingsdrinks
@@ -96,7 +107,7 @@ Orangensaft und Southern Comfort über Eiswürfel in ein hohes Glas geben und ku
 
 #### Mojito
 
-- 4 cl Weißrum
+- 4 cl Weißum
 - 2 cl Limettensaft
 - 2 TL Rohrzucker
 - 8–10 Minzblätter
