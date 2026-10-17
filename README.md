@@ -94,6 +94,14 @@ Orangensaft und Southern Comfort über Eiswürfel in ein hohes Glas geben und ku
 - Heißes Wasser
 - Zimtstange
 
+#### Whisky Sour
+
+- 5 cl Bourbon
+- 3 cl frischer Zitronensaft
+- 1 cl Zuckersirup
+
+Mit Eis shaken und doppelt abseihen. Mit einer Zitronenscheibe und einer Kirsche garnieren.
+
 ### Winterdrinks
 
 #### Glühwein
