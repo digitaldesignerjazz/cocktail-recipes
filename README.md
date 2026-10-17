@@ -52,6 +52,17 @@ Alle Zutaten mit Eis shaken und abseihen. Mit einer Limettenscheibe garnieren. D
 
 Eis rein, mit Coca-Cola auffüllen. Garnitur: Limettenscheibe und ein Strohhalm.
 
+## Buccaneer
+
+**Zutaten:**
+
+- 5 cl dunkler Rum
+- 2 cl Kokosnusslikör
+- 1 cl Limettensaft
+- 1 Spritzer Orangenbitter
+
+Mit Eis shaken, in ein kurzes Glas abseihen. Garnitur: Kokosraspeln obendrauf.
+
 ## Saisonale Drinks
 
 ### Frühlingsdrinks
@@ -122,8 +133,7 @@ Orangensaft und Southern Comfort über Eiswürfel in ein hohes Glas geben und ku
 - 4 cl Whisky
 - 1 EL Honig
 - Saft einer halben Zitrone
-
-Heißes Wasser
+- Heißes Wasser
 - Zimtstange
 
 #### Whisky Sour
@@ -148,7 +158,6 @@ Mit Eis shaken, in ein kurzes Glas mit Eiswürfeln abseihen. Mit einem halben Ba
 #### Glühwein
 
 - 75 cl Rotwein
-
 - 15 cl Orangensaft
 - 5 cl Rum
 - 50 g Zucker
