@@ -125,6 +125,15 @@ Eis rein, Cola, Whisky und Rum darüber, mit einem Spritzer Limette. In Irland h
 
 Orangensaft und Southern Comfort über Eiswürfel in ein hohes Glas geben und kurz umrühren. Eine Garnitur ist nicht nötig, optional passt eine Orangenscheibe.
 
+#### Echnaton
+
+- 3 cl Wodka
+- 2 cl Granatapfelsaft
+- 1 cl Limettensaft
+- 0.5 cl Zuckersirup
+
+Mit Eis shaken und abseihen, in ein hohes Glas mit Eis. Granatapfelkerne obendrauf — die Farbe erinnert an die Sonne über Theben.
+
 ### Sommerdrinks
 
 #### Mojito
