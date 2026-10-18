@@ -91,6 +91,18 @@ Mit Eis shaken und abseihen. Garnitur: Zitronenschale.
 
 Eis rein, Cola, Whisky und Rum darüber, mit einem Spritzer Limette. In Irland heißt so ein Mix Irish Buck — mit Rum drin wird's zum German Buck.
 
+## Koch-Cocktail
+
+**Zutaten:**
+
+- 4 cl Gin
+- 2 cl Rosmarinsirup
+- 2 cl frischer Zitronensaft
+- 1 Prise Meersalz
+- 1 Spritzer Tonic
+
+Gin, Sirup, Zitrone und Salz mit Eis kräftig shaken, in einen Tumbler auf frisches Eis abseihen und mit Tonic auffüllen. Garnitur: ein kurz angeflämmter Rosmarinzweig.
+
 ## Saisonale Drinks
 
 ### Frühlingsdrinks
