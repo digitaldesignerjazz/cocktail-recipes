@@ -103,6 +103,16 @@ Eis rein, Cola, Whisky und Rum darüber, mit einem Spritzer Limette. In Irland h
 
 Gin, Sirup, Zitrone und Salz mit Eis kräftig shaken, in einen Tumbler auf frisches Eis abseihen und mit Tonic auffüllen. Garnitur: ein kurz angeflämmter Rosmarinzweig.
 
+## Foxtrot-Cocktail
+
+**Zutaten:**
+
+- 4 cl Whisky
+- 2 cl Cointreau
+- 4 cl Kirschsaft
+
+Alle Zutaten mit Eis shaken und in einen Tumbler auf frisches Eis abseihen. Garnitur: eine Kirsche.
+
 ## Saisonale Drinks
 
 ### Frühlingsdrinks
